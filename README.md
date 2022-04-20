@@ -9,3 +9,5 @@ Do not buy anything with him.
 
 
 VALORANT EXTERNAL C++
+
+SCAMMER
